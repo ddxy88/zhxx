@@ -5,7 +5,7 @@
 
 ⭐⭐⭐8分钟学完45分！⭐⭐⭐
 
-![软件截图](https://ddxy88.github.io/xx/ui.jpg)
+![软件截图](https://s1.ax1x.com/2022/10/13/xa6JRe.jpg)
 
 [下载 7z格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0.7z)
 
