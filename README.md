@@ -13,6 +13,6 @@
 
 [下载 7z格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0.7z)
 
-[下载 zip格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0.zip)
+[下载 多开版](https://avin999.github.io/xx/%E5%AD%A6%E4%B9%A0%E8%BE%BE%E4%BA%BA.7z)
 
 ### 为防杀软误杀，请添加到白名单，建议使用火绒安全
