@@ -13,7 +13,7 @@
 
 [下载 正式版 7z格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0.7z)
 
-[下载 加强版 7z格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0%E5%8A%A0%E5%BC%BA%E7%89%88.7z) （正式版无法登录的，请下载加强版）
+[下载 加强版 7z格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0%E5%8A%A0%E5%BC%BA%E7%89%88.7z) （建议下载加强版）
 
 [下载 多开版 7z格式](https://avin999.github.io/xx/%E5%AD%A6%E4%B9%A0%E8%BE%BE%E4%BA%BA.7z)
 
