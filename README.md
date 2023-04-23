@@ -5,11 +5,11 @@
 
 ⭐⭐⭐最快6分钟学完40-45分！⭐⭐⭐
 
-### 解压密码 123
-
 ![软件截图](https://s1.ax1x.com/2022/10/13/xa6JRe.jpg)
 
 [查看截图](https://s1.ax1x.com/2022/10/13/xa6JRe.jpg)
+
+### 解压密码 123
 
 [下载 加强版 7z格式](https://ddxy88.github.io/xx/%E6%99%BA%E6%85%A7%E5%AD%A6%E4%B9%A0%E5%8A%A0%E5%BC%BA%E7%89%88.7z) 
 
